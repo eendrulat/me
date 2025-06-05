@@ -3,7 +3,7 @@
 **Geospatial Solutions Architect**  
 📍 West Lebanon, NH  
 📧 eendrulat@gmail.com | 📞 401-651-7246  
-🧭 [GitHub](https://github.com/yourusername) | [LinkedIn](https://linkedin.com/in/yourprofile)
+🧭 [GitHub](https://github.com/eendrulat) | [LinkedIn](https://www.linkedin.com/in/eendrulat/)
 
 ---
 
